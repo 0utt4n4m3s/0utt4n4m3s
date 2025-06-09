@@ -9,12 +9,12 @@ ALSO DONT COPY ANY OF MY PONIES PLEASE !!
 
 fandoms im in !! :
 
-!! dandys world / nyan neko sugar girls / cookie run kingdom / forsaken / vocaloid / south park / regretavator / squid game / five nights at freddys / phighting (i know the characters nothing else) / hazbin hotel and helluva boss (slowly dying idk) / kaiju paradise / nyan cat / happy tree friends / sanrio / chiikawa / ena dream bbq / Fundamental Paper Education / battle for dream island / panty & stocking / invader zim / black tales !! 
+!! dandys world / nyan neko sugar girls / cookie run kingdom / forsaken / vocaloid / south park / regretavator / squid game / five nights at freddys / phighting (i know the characters nothing else) / hazbin hotel and helluva boss (slowly dying idk) / kaiju paradise / nyan cat / happy tree friends / sanrio / chiikawa / ena dream bbq / Fundamental Paper Education / battle for dream island / panty & stocking / invader zim / black tales / wander over yonder !! 
 (im prob in more i just forget)
 
 characters i love in each fandom heh !! :
 
-!! poppy, & looey, / koneko-chan, & raku-chan, / fire spirit, wind archer, milky way, pavlova, shadow milk, hollyberry, eternal sugar, burning spice, affogato, & squid ink, / shedletsky, azure, & elliot, / emu otori, / tweek, & cartman, / infected, null, poob, & unpleasant / nam-gyu, thanos, min-su, / funtime foxy, scrap baby, / medkit, / adam & fizzarolli / lemon shork, & pseudo shark, / nyan cat, / nutty, / pompompurin, / usagi, / kane, / zip, / x, & four, / panty, / gir, / griefer !!
+!! poppy, & looey, / koneko-chan, & raku-chan, / fire spirit, wind archer, milky way, pavlova, shadow milk, hollyberry, eternal sugar, burning spice, affogato, & squid ink, / shedletsky, azure, & elliot, / emu otori, / tweek, & cartman, / infected, null, poob, & unpleasant / nam-gyu, thanos, min-su, / funtime foxy, scrap baby, / medkit, / adam & fizzarolli / lemon shork, & pseudo shark, / nyan cat, / nutty, / pompompurin, / usagi, / kane, / zip, / x, & four, / panty, / gir, / griefer /wander & sylvia !!
 
 ships i like !! :
 
