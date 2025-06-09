@@ -1,4 +1,5 @@
-uh learn more about me !! -     hello my name is lilly ! im taken so dont come at me saying you like me !
+uh learn more about me !! -     hello my name is lilly ! im taken so dont come at me saying you like me ! ||ヽ(*￣▽￣*)ノミ|Ю
+
 
 if you see me on pony town your allowed to int or c+h im fine with that and also please be kind and dont be weird if your gonna int probs dont c+h when im with friends
 im a minor so uh idk be careful with the stuff you say if its something weird like sex jokes or anything like that
@@ -6,7 +7,7 @@ im fine with ships but like rp please dni im not a good roleplayer and i dont wa
 dont ever vent to me im not good at helping someone with their problems or telling them its gonna be okay bc they always just say ''no its not'' 
 (like i can try if your a close friend but like ehhhh) 
 
-ALSO DONT COPY ANY OF MY PONIES PLEASE !!
+ALSO DONT COPY ANY OF MY PONIES PLEASE !! ～(　TロT)σ
 
 fandoms im in !! :
 
@@ -31,6 +32,6 @@ i love listening to music if you wanna have something to listen to heres some so
 
 (i listen to more im just to lazy to add it)
 
-anyways have a good day or night
+anyways have a good day or night ( •̀ ω •́ )✧
 
 
