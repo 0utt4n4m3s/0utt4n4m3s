@@ -1,8 +1,9 @@
-uh learn more about me !! -     hello my name is lilly 
+uh learn more about me !! -     hello my name is lilly ! im taken so dont come at me saying you like me !
+
 if you see me on pony town your allowed to int or c+h im fine with that and also please be kind and dont be weird if your gonna int probs dont c+h when im with friends
 im a minor so uh idk be careful with the stuff you say if its something weird like sex jokes or anything like that
 im fine with ships but like rp please dni im not a good roleplayer and i dont wanna rp with you racist people DNI pedofiles and proshippers DNI rude people who just come to hate DNI
-dont ever vent to me im not good at helping someone with their problems or telling them its gonna be okay bc they always just say ''no its not'' /like i can try if your a close friend but like ehhhh/
+dont ever vent to me im not good at helping someone with their problems or telling them its gonna be okay bc they always just say ''no its not'' (like i can try if your a close friend but like ehhhh)
 
 fandoms im in!! :
 
