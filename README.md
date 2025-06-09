@@ -5,6 +5,7 @@ im a minor so uh idk be careful with the stuff you say if its something weird li
 im fine with ships but like rp please dni im not a good roleplayer and i dont wanna rp with you racist people DNI pedofiles and proshippers DNI rude people who just come to hate DNI
 dont ever vent to me im not good at helping someone with their problems or telling them its gonna be okay bc they always just say ''no its not'' 
 (like i can try if your a close friend but like ehhhh) 
+
 ALSO DONT COPY ANY OF MY PONIES PLEASE !!
 
 fandoms im in !! :
