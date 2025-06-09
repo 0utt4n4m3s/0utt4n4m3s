@@ -8,7 +8,8 @@ dont ever vent to me im not good at helping someone with their problems or telli
 
 fandoms im in!! :
 
-!! dandys world / nyan neko sugar girls / cookie run kingdom / forsaken / vocaloid / south park / regretavator / squid game / five nights at freddys / phighting (i know the characters nothing else) / hazbin hotel and helluva boss (slowly dying idk) / kaiju paradise / nyan cat / happy tree friends / sanrio / chiikawa / ena dream bbq / Fundamental Paper Education / battle for dream island / panty & stocking !! (im prob in more i just forget)
+!! dandys world / nyan neko sugar girls / cookie run kingdom / forsaken / vocaloid / south park / regretavator / squid game / five nights at freddys / phighting (i know the characters nothing else) / hazbin hotel and helluva boss (slowly dying idk) / kaiju paradise / nyan cat / happy tree friends / sanrio / chiikawa / ena dream bbq / Fundamental Paper Education / battle for dream island / panty & stocking !! 
+(im prob in more i just forget)
 
 i love listening to music if you wanna have something to listen to heres some songs or just some i listen to !! :
 
