@@ -8,19 +8,19 @@ dont ever vent to me im not good at helping someone with their problems or telli
 
 fandoms im in !! :
 
-!! dandys world / nyan neko sugar girls / cookie run kingdom / forsaken / vocaloid / south park / regretavator / squid game / five nights at freddys / phighting (i know the characters nothing else) / hazbin hotel and helluva boss (slowly dying idk) / kaiju paradise / nyan cat / happy tree friends / sanrio / chiikawa / ena dream bbq / Fundamental Paper Education / battle for dream island / panty & stocking / invader zim !! 
+!! dandys world / nyan neko sugar girls / cookie run kingdom / forsaken / vocaloid / south park / regretavator / squid game / five nights at freddys / phighting (i know the characters nothing else) / hazbin hotel and helluva boss (slowly dying idk) / kaiju paradise / nyan cat / happy tree friends / sanrio / chiikawa / ena dream bbq / Fundamental Paper Education / battle for dream island / panty & stocking / invader zim / black tales !! 
 (im prob in more i just forget)
 
 characters i love in each fandom heh !! :
 
-!! poppy, & looey, / koneko-chan, & raku-chan, / fire spirit, wind archer, milky way, pavlova, shadow milk, hollyberry, eternal sugar, burning spice, affogato, & squid ink, / shedletsky, azure, & elliot, / emu otori, / tweek, & cartman, / infected, null, poob, & unpleasant / nam-gyu, thanos, min-su, / funtime foxy, scrap baby, / medkit, / adam & fizzarolli / lemon shork, & pseudo shark, / nyan cat, / nutty, / pompompurin, / usagi, / kane, / zip, / x, & four, / panty, / gir, !!
+!! poppy, & looey, / koneko-chan, & raku-chan, / fire spirit, wind archer, milky way, pavlova, shadow milk, hollyberry, eternal sugar, burning spice, affogato, & squid ink, / shedletsky, azure, & elliot, / emu otori, / tweek, & cartman, / infected, null, poob, & unpleasant / nam-gyu, thanos, min-su, / funtime foxy, scrap baby, / medkit, / adam & fizzarolli / lemon shork, & pseudo shark, / nyan cat, / nutty, / pompompurin, / usagi, / kane, / zip, / x, & four, / panty, / gir, / griefer !!
 
 ships i like !! :
 
 !! cosmo x sprout / astro x dandy / bassie x bobette / dandy x poppy / looey x connie / glisten x rodger ! (im to lazy to put all the dandys world ships i like)
 !! koneko-chan x raku-chan / fire spirit x wind archer / hollyberry x eternal sugar / chance x mafioso / elliot x chance / elliot x mafioso / two time x azure / 
 !! emu otori x nene / tweek x craig / poob x pest / nam-gyu x thanos / (i dont really have any fnaf ships) michael afton x me ig / (same for phigting) / vox x val /
-!! fizzarolli x asmodeus / usagi x momonga / coral glasses x ena / zip x edward / x x four / 
+!! fizzarolli x asmodeus / usagi x momonga / coral glasses x ena / zip x edward / x x four / griefer x player /  
 
 
 i love listening to music if you wanna have something to listen to heres some songs or just some i listen to !! :
