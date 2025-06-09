@@ -13,7 +13,7 @@ fandoms im in !! :
 
 characters i love in each fandom heh !! :
 
-!! poppy, & looey, / koneko-chan, & raku-chan, / fire spirit, wind archer, milky way, pavlova, shadow milk, hollyberry, eternal sugar, burning spice, affogato, & squid ink, / shedletsky, & elliot, / emu otori, / tweek, & cartman, / infected, null, poob, & unpleasant / nam-gyu, thanos, min-su, / funtime foxy, scrap baby, / medkit, / adam & fizzarolli / lemon shork, & pseudo shark, / nyan cat, / nutty, / pompompurin, / usagi, / kane, / zip, / x, & four, / panty, / gir, !!
+!! poppy, & looey, / koneko-chan, & raku-chan, / fire spirit, wind archer, milky way, pavlova, shadow milk, hollyberry, eternal sugar, burning spice, affogato, & squid ink, / shedletsky, azure, & elliot, / emu otori, / tweek, & cartman, / infected, null, poob, & unpleasant / nam-gyu, thanos, min-su, / funtime foxy, scrap baby, / medkit, / adam & fizzarolli / lemon shork, & pseudo shark, / nyan cat, / nutty, / pompompurin, / usagi, / kane, / zip, / x, & four, / panty, / gir, !!
 
 ships i like !! :
 
