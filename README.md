@@ -26,6 +26,7 @@ ships i like !! :
 !! emu otori x nene / tweek x craig / poob x pest / nam-gyu x thanos / (i dont really have any fnaf ships) michael afton x me ig / (same for phigting) / vox x val /
 !! fizzarolli x asmodeus / usagi x momonga / coral glasses x ena / zip x edward / x x four / griefer x player /  
 
+https://dk.pinterest.com/pin/22658804369690424/
 
 i love listening to music if you wanna have something to listen to heres some songs or just some i listen to !! :
 
