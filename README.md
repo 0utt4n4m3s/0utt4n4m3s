@@ -10,5 +10,6 @@ dont ever vent to me im not good at helping someone with their problems or telli
 and also i dont like being asked about my age that makes me kinda uncomfy so uh if you come up to me and ask what my age is im not gonna tell you since im not oka with others online knowing my age !!
 
 ALSO DONT COPY ANY OF MY PONIES PLEASE !! ～(　TロT)σ
+i also sit afk alot aswell so if you ask me stuff and i dont answer im probably drawing or on roblox
 
 
