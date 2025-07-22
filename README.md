@@ -13,6 +13,6 @@ i also sit afk alot aswell so if you ask me stuff and i dont answer im probably 
 
 ALSO DONT COPY ANY OF MY PONIES PLEASE !! ～(　TロT)σ
 
-![^^](https://github.com/user-attachments/assets/661e0835-2259-4322-94bc-033e9e69bc90)
+
 
 
