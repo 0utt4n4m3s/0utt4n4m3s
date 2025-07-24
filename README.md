@@ -1,3 +1,2 @@
-![Four and X Tpot 16](https://github.com/user-attachments/assets/e7dc6757-bd4a-4288-992e-5968576de42d)
-
+![Dumb shedletsky - forsaken roblox](https://github.com/user-attachments/assets/74e3cf92-9451-4434-8a72-9a1ea53bb7ca)
 
