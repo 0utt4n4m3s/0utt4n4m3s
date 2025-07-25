@@ -1,2 +1,1 @@
-![Dumb shedletsky - forsaken roblox](https://github.com/user-attachments/assets/74e3cf92-9451-4434-8a72-9a1ea53bb7ca)
-
+![I don’t like Pinterest anymore](https://github.com/user-attachments/assets/c17dfb4a-72ac-4cac-8a24-d26aef7d93fc)
