@@ -1,2 +1,1 @@
-
-![Made W_ Love 💖 also designs by @angelsite_ on tt](https://github.com/user-attachments/assets/7aeeef75-edb8-40f3-9942-22145ec462a0)
+![🎯    ◟     till     ☆](https://github.com/user-attachments/assets/fdfb00da-7fc1-4d2e-a472-18ba63ab3e84)
